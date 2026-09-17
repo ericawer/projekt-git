@@ -1,1 +1,1 @@
-Tekst z galezi 2 
+Tekst z galezi 2
