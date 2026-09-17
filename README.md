@@ -1,1 +1,1 @@
-abcdefg
+Tekst z galezi 1 
